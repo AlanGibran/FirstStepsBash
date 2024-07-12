@@ -1,2 +1,2 @@
 # FirstStepsBash
-Two weeks omg
+ok so let's star again
